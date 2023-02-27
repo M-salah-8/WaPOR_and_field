@@ -12,4 +12,4 @@ For more: https://www.fao.org/in-action/remote-sensing-for-water-productivity/wl
 * Where I got the limitations: https://doi.org/10.5194/hess-2021-409
 
 Email: mohammedalmak98@gmail.com\
-Linked in: https://www.linkedin.com/in/mohammed-salah-16aa75237
+LinkedIn: https://www.linkedin.com/in/mohammed-salah-16aa75237
